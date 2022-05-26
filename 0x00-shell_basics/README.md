@@ -1,1 +1,1 @@
-we are one
+united we stand
