@@ -1,1 +1,1 @@
-good people
+struggle
