@@ -1,1 +1,1 @@
-united we stand
+stay cool
