@@ -1,1 +1,1 @@
-struggle
+nice job
