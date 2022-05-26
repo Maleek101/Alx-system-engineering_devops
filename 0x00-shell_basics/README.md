@@ -1,1 +1,1 @@
-stay cool
+old days
